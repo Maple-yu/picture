@@ -1,0 +1,2 @@
+# picture
+Self-Picture-bad
